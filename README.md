@@ -1,2 +1,3 @@
 # fredocr15.github.io 
-Dj is my son shhh!
+D'yante Jones is my son shhh!
+If you ain't first you last- Ricky Bobby
